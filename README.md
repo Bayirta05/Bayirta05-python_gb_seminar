@@ -1,0 +1,1 @@
+# Bayirta05-python_gb_seminar
